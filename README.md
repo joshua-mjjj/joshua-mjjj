@@ -47,4 +47,6 @@ I'm always excited to work on innovative projects, especially those involving:
 
 ---
 
+Cat Lover.
+
 *"Building the future, one line of code at a time."* 💻✨
